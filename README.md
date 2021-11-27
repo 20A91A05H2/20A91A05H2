@@ -1,4 +1,5 @@
 ### Hi there 👋
+I AM STUDYING IN ADITYA ENGINEERING COLLEGE
 
 <!--
 **20A91A05H2/20A91A05H2** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
